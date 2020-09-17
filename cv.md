@@ -26,3 +26,9 @@ ___
 -	English (Intermediate, B1)
 -	Korean (Basic, A1)
 ___
+ **Work Experience**
+August 2017– present
+KONTRAKTOR Ltd. Import tires purchaser
+___
+**Hobbies and Interests**
+Social dancing (lindy hop, blues)
