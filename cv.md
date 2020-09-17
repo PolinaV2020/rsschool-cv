@@ -17,3 +17,12 @@ Belarus State Economic University, Minsk
 - Basics of typography
 3.	Introduction to Python, Coursera
 ___
+**Skills**
+-	Creative thinking
+-	Sociability
+-	Teamwork
+___
+**Languages**
+-	English (Intermediate, B1)
+-	Korean (Basic, A1)
+___
